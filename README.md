@@ -7,7 +7,7 @@
       other skills that will aid me in learning 
 - ⚡ i'm highly logical, so if i seem naive sometimes
      i'm probably just taking you entirely too literal.
-     \(-_-)/ lol
+     "\(-_-)/" lol
 <!--- 
 N16HT5H4D3/N16HT5H4D3 is a ✨ cuddly ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
